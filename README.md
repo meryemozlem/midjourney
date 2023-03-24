@@ -5,3 +5,6 @@ Temalar dahilinde oluşturduğum eserlerimi bu repomda sizlerle paylaşmaktan mu
  
  #Midjourney hakkında yazmış olduğum medium yazıma ulaşmak için (https://medium.com/@ozdoan/metin-girişi-veya-dosya-yükeleme-ile-görsel-üretebildiğimiz-yapay-zeka-yazılımları-nasıl-çalışır-fbd164910fd1) bağlantıyı ziyaret ederseniz çok sevinirim.
 #yapayzeka #midjourneyart #challange
+#7daysMidjourneyChallenge
+#7GünMidjourneyChallenge
+
