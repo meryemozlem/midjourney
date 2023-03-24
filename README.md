@@ -4,10 +4,7 @@ Temalar dahilinde oluşturduğum eserlerimi bu repomda sizlerle paylaşmaktan mu
  <br>
  
  #Midjourney hakkında yazmış olduğum medium yazıma ulaşmak için (https://medium.com/@ozdoan/metin-girişi-veya-dosya-yükeleme-ile-görsel-üretebildiğimiz-yapay-zeka-yazılımları-nasıl-çalışır-fbd164910fd1) bağlantıyı ziyaret ederseniz çok sevinirim.
- <br>
-#yapayzeka #midjourneyart #challange
-#7daysMidjourneyChallenge
-#7GünMidjourneyChallenge
+
 <br>
 I participated in the #Midjourney visual art challenge. An impressive theme is shared every day and I develop new designs.
 <br>
@@ -25,3 +22,8 @@ I participated in the #Midjourney visual art challenge. An impressive theme is s
 6.gün teması: Volkan 🌋
 <br>
 7.gün teması: Vikingler ⚔︎🛡
+
+ <br>
+#yapayzeka #midjourneyart #challange
+#7daysMidjourneyChallenge
+#7GünMidjourneyChallenge
