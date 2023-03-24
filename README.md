@@ -9,13 +9,13 @@ Temalar dahilinde oluşturduğum eserlerimi bu repomda sizlerle paylaşmaktan mu
 I participated in the #Midjourney visual art challenge. An impressive theme is shared every day and I develop new designs.
 <br>
 <br>
-#1.gün teması: Japon kiraz çiçeği (sakura) 🌸
+1.gün teması: Japon kiraz çiçeği (sakura) 🌸
 <br>
-#2.gün teması: Orman 🌳
+2.gün teması: Orman 🌳
 <br>
-#3.gün teması: Pixel sanatı 🎆
+3.gün teması: Pixel sanatı 🎆
 <br>
-#4.gün teması: Retrowave 💾✨
+4.gün teması: Retrowave 💾✨
 <br>
 5.gün teması: Uzay 🤩🚀 
 <br>
