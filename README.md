@@ -8,3 +8,4 @@ Temalar dahilinde oluşturduğum eserlerimi bu repomda sizlerle paylaşmaktan mu
 #7daysMidjourneyChallenge
 #7GünMidjourneyChallenge
 
+I participated in the #Midjourney visual art challenge. An impressive theme is shared every day and I develop new designs.
